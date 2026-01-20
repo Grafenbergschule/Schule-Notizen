@@ -1,0 +1,12 @@
+# Ignoriere alles von Obsidian (Einstellungen, Plugins, Themes)
+.obsidian/
+
+# Ignoriere den Papierkorb
+.trash/
+
+# Ignoriere System-Müll
+.DS_Store
+Thumbs.db
+
+# Ignoriere Skripte
+*.sh
