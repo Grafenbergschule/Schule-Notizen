@@ -1,0 +1,12 @@
+
+- block roads
+- break the law
+- confront politicians
+- donate money to environmental charities
+- engage in civil disobedience
+- file a lawsuit
+- to get involved with an organization
+- glue yourself to a public building
+- go on strike
+- going a beach clean up
+- to spread the message on social media
