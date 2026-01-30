@@ -1,0 +1,3 @@
+- Maximen sind Grundhaltungen, (Verallgemeinerte Einstellungen), die versch. Absichten einer Person zusammenfassen (auch praktische Regeln im Alltag)
+- vereinfachen die Beurteilung von konkreten Handlungssituationen innerhalb eines Lebensbereichs z.B. wenn mein Vorsatz Aufrichtigkeit ist, dann kann ich schnell in jeder Situation mich dafür entscheiden ehrlich zu handeln.
+- sind überschaubarer, erleichtert Handlungsentscheidung
