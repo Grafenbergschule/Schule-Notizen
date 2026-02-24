@@ -1,0 +1,6 @@
+In dem Artikel "Womit keiner rechnet" diskutiert Leon Igel den Nutzen und die Sinnhaftigkeit einer sozialen Dienstpflicht. In dem am 17.11.2022 in der Zeit erschienen Artikel wird behauptet, dass die Stärkung der bisherigen freiwilligen Sozialdienstangebote der Einführung eines Pflichtdienstes vorzuziehen sein. Der Entwurf einer Verpflichtung aller jungen Menschen lehnt Leon Igel daher ab. 
+
+In der Bewertung eines sozialen Pflichtdienstes werden wichtige praktische Probleme eines Pflichtdienstes beleuchtet. Die Grundidee eines Jahres, welches den Zusammenhalt in der Gesellschaft stärken und "Entfremdung entgegen[...]wirken" (Z. 8) solle, findet jedoch wenig Beachtung. 
+
+Der Autor sieht das Ziel eines sozialen Pflichtdienstes nämlich primär darin, mehr junge Menschen für die Arbeit für das Allgemeinwohl zu gewinnen (vgl. Z. 11ff.). Anhand eines Vergleiches der Teilnehmerzahlen der Zivildienstes und der des Bundesfreiwilligendienstes (BFD). Da die Zahl der jungen Menschen, die 2021 am BFD teilnahmen, mit 94.500 höher war als die Zahl der zuletzt im Zivildienst Rekrutierten, engagierten sich also auch heute, ohne Pflichtdienst, viele junge Erwachsene für die Gesellschaft. Hinzukämen Personen die sich im Ausland engagierten (vgl. Z. 19ff.). So würden sich rund 100.000 Heranwachsende pro Jahr freiwillig für die Gesellschaft einsetzen (vgl. Z. 26f.)
+ 
