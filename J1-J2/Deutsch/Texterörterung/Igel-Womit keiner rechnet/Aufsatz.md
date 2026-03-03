@@ -12,7 +12,7 @@ Die politische Argumentation von z.B Frank-Walter Steinmeier sieht durch die St�
 Der Forderung den Freiwilligendienst attraktiver zu machen ist vollständig zuzustimmen. Jedoch wird die Notwendigkeit eines Pflichtdienstes deswegen keineswegs obsolet. Auch ein Pflichtdienst könnte finanziell ansprechender gestaltet werden und mit den selben im Text erwähnten Anreizen ausgestattet sein. Und somit argumentiert der Autor hier nicht gegen einen Pflichtdienst, sondern für eine faire Ausgestaltung von den Angeboten, in denen sich junge Menschen für die Allgemeinheit aufopfern. 
 
 Zuletzt erläutert Igel, dass ein Pflichtdienst den Fachkräftemangel, z.B. in der Pflege, nicht lösen könne. Die vielen unausgebildete Hilfskräfte können gerade wegen dem Fachkräftemangel nicht alle zu neuen Sozialdienstleistenden ausgebildet werden (vgl. Z. 45 ff.). Außerdem seien vor allem Freiwillige, welche aus Eigenmotivation unterstützen wollen, eine echte Hilfe. 
-Der Autor dämpft hier eine unrealistische Erwartung. Zu großem Teil unausgebildete junge Menschen werden den Fachkräftemangel natürlich nicht lösen können. Diese unrealistische Erwartung als als Argument für einen Pflichtdienst zu konstruieren und anschließend zu entkräften ist jedoch nicht sehr überzeugend. 
+Der Autor dämpft hier eine unrealistische Erwartung. Zu großem Teil unausgebildete junge Menschen werden den Fachkräftemangel natürlich nicht lösen können. Diese unrealistische Erwartung als ein Argument für einen Pflichtdienst zu konstruieren, um anschließend zu entkräften ist jedoch nicht sehr überzeugend. 
 
 
  
