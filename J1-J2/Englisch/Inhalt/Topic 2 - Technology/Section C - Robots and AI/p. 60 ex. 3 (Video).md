@@ -1,7 +1,7 @@
 
 1. Intelligent algorithms 
 - decision making
-- computers reproduce human proc3sses like learning or decision making
+- computers reproduce human procsses like learning or decision making
 --- 
 - decide autonomously
 
@@ -14,7 +14,7 @@ AI's promise of an efficient world
 - do jobs humans should/will not do
 
 significance of gaming
-- robots are bettter than humans
+- robots are better than humans
 - measure of power of AI
 
 software in medicine
