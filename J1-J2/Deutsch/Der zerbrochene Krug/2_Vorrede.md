@@ -29,3 +29,30 @@ d)
 
 e)
 Es scheint um einen autoritären Richter, der bereits einen schwachen jungen Kerl als schuldig ansieht, sowie eine schwache betagte Klägerin mit schuldigbewusster Tochter, die auf dubiose Art in den Fall verwickelt ist und sich nicht entscheiden kann, ob sie eher zur Mutter oder dem jungen Mann, ihrem Bräutigam, halten soll. Diese Lage beobachtet ein Gerichtsschreiber, der den Richter misstrauisch anblickt.
+
+
+3
+Comic extrem gekürzt
+
+Unterschiede: 
+- Adam hat andere Ausrede für seine Verletzungen
+- zeitgenössische und umgangssprachliche Sprache
+- Licht kündigt ankommen Walters garnicht an. 
+	- stattdessen Überraschung durch Walter
+
+
+Gemeinsamkeiten: 
+
+
+
+4
+Grad der Abstraktion: 
+- äußerst verkürzt 
+	- so dass ganze Handlungsschritte ausgelassen werden
+
+Zeichenstil/Darstellung: 
+- passend, da karikaturhaft und satirisch
+
+Leseverständnis: 
+- sehr einfach
+- verändert teilweise Beziehungen zwischen Personen 

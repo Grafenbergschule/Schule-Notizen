@@ -5,6 +5,8 @@ A.1
 - Komödienhaftigkeit wird deutlich
 	- peinliche Situation am Anfang
 - äußerst umgangssprachlich ("Moin")
+	- sehr ausdrucksstarke Mimik
 
 Stil: 
--  
+- karikaturhaft
+- übertrieben
