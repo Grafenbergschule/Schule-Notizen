@@ -9,7 +9,7 @@ Firstly, the text follows an **argumentative** structure.
 
 The author inserts personal experiences to increase **connection**. 
 
-In terms **of being able** to achive the goal of personal closure, the author writes in an informal **langugage** and **chooses** a personal tone. 
+In terms **of being able** to archive the goal of personal closure, the author writes in an informal **language** and **chooses** a personal tone. 
 Although the argumentative paragraphs tend to be written in a higher level of language...
 
 This personal connection is the **foundation** fo rthe **effectiveness** of the many normative arguments. This **also** offers the **opportunity** to implement a **ironic** tone, like in the first paragraph (e.g. l.4-8). Like this the reader is **unconsciously** pushed into the direction of the **author's** opinion. 
