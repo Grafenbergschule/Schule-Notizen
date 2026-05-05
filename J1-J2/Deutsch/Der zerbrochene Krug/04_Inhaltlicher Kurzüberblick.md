@@ -88,8 +88,8 @@ Personen:
 - Eve
 - Veit 
 - Ruprecht
-- Walter 
-- Licht
+- (Walter)
+- (Licht)
 
 
 Handlung:
