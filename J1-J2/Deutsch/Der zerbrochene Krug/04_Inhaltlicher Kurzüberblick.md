@@ -64,3 +64,62 @@ Handlung:
 - Es zeigen sich Unklarheiten bei Adams Kassenführung 
 - Prüfung (der Kassen) wird verschoben
 - Walter will am Gerichtstag dabei sein 
+
+
+
+## 5. Auftritt
+Personen: 
+- Zweite Magd
+- Adam Walter 
+- Licht (sagt nichts)
+- Der Büttel 
+
+
+Handlung
+- Magd konnte keine Perücke auftreiben 
+- Richter muss zu Walters Ärgernis kahlköpfig in den Gerichtstag gehen muss
+- Adam bietet dem Richter ein Frühstück ab dieser lehnt ab
+
+
+
+## 6. Auftritt
+Personen: 
+- Frau Marthe Rull
+- Eve
+- Veit 
+- Ruprecht
+- Walter 
+- Licht
+
+
+Handlung:
+- Marthe Rull beschuldigt Ruprecht, er habe er hätte den Krug zerbrochen 
+- Veit Tümpel bietet Schadensersatz an, fall Ruprecht tatsächlich schuldig ist
+- Ruprcht Tümpel schimpft über Eve, mit der er nicht mehr verlobt ist, da sie mit einem fremden Mann im Zimmer war
+- Eve hat Angst, dass sie Ruprecht nicht mehr wieder sehen wird, da er in den Krieg ziehen wird
+- Marthe Rull sieht direkte Beziehung zwischen zerbrochenem Krug und der verlorenen Ehre Eves
+- Marthe möchte, um Ansehen Eves zu retten, dass Eve schnell einen anderen denn Ruprecht heiratet
+
+
+## 7. Auftritt
+Personen: 
+- Frau Marthe Rull
+- Eve
+- Veit 
+- Ruprecht
+- Walter 
+- Licht
+- Adam
+
+
+Handlung:
+- Adam hat Angst, dass er selbst verklagt werden wird
+	- er will zu Bette gehn
+- Gerichtsrat drängt Adam den Prozess zu eröffnen 
+- Frau Marthe Rull trägt Anklage äußerst ausführlich vor
+- Adam möchte Ruprecht vorverurteilen
+- Walter vermutet Schuld Adams und "Hinwälzen" der Schuld auf Ruprecht
+- Walter setzt durch, dass Ruprecht und Eve ihre Sicht schildern dürfen
+- Ruprecht vermutet sein Konkurrent müsse der Mann in dem Zimmer sein
+- Eve hält sich zurück
+
