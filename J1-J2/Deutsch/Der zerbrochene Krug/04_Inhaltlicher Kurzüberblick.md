@@ -95,10 +95,12 @@ Personen:
 Handlung:
 - Marthe Rull beschuldigt Ruprecht, er habe er hätte den Krug zerbrochen 
 - Veit Tümpel bietet Schadensersatz an, fall Ruprecht tatsächlich schuldig ist
-- Ruprcht Tümpel schimpft über Eve, mit der er nicht mehr verlobt ist, da sie mit einem fremden Mann im Zimmer war
+- Ruprecht Tümpel schimpft über Eve, mit der er nicht mehr verlobt ist, da sie mit einem fremden Mann im Zimmer war
 - Eve hat Angst, dass sie Ruprecht nicht mehr wieder sehen wird, da er in den Krieg ziehen wird
 - Marthe Rull sieht direkte Beziehung zwischen zerbrochenem Krug und der verlorenen Ehre Eves
 - Marthe möchte, um Ansehen Eves zu retten, dass Eve schnell einen anderen denn Ruprecht heiratet
+---
+- Der Krug scheint untergeordnet wichtig 
 
 
 ## 7. Auftritt
@@ -122,4 +124,54 @@ Handlung:
 - Walter setzt durch, dass Ruprecht und Eve ihre Sicht schildern dürfen
 - Ruprecht vermutet sein Konkurrent müsse der Mann in dem Zimmer sein
 - Eve hält sich zurück
+---
+- Adam täuscht Unwohlsein vor, nachdem er die Teilnehmer des Prozesses sieht
+- Adam versucht Eve zu beschwören, zu schweigen, droht ihr. 
+- Walter wertet den Prozess als skandalös
+- Adam würde Ruprecht gerne verurteilen und den Prozess schnell beenden
+- Walter will, dass Ruprecht & Eve den Vorfall des vorigen Abends aus ihrer Sicht schildern können 
+- Ruprecht beschuldigt Lebrecht in Eves Zimmer gewesen zu sein 
+- Eve hält sich zurück
+- Frau Marthe denkt, ihre Tochter sei eine Hure. 
 
+
+
+
+
+## 8. Auftritt
+Personen: 
+- Adam 
+- Walter 
+- Licht
+- die Vorherigen 
+
+
+## Handlung:
+
+---
+- Adam will Zeit schinden, wird vermutlich nervöser. Lässt Magd Wasser holen, bietet Walter Wein an, der ablehnt
+
+
+
+
+## 9. Auftritt
+Personen: 
+- Adam 
+- Walter 
+- Licht
+- Frau Marthe Rull
+- Eve
+- Veit 
+- Ruprecht
+
+
+## Handlung:
+
+---
+- Adam plädiert für Abkürzung des Prozesses
+	- Walter lehnt ab
+- Adam versucht Eve zu beeinflussen, etwas aber nicht zu viel von der Wahrheit preiszugeben
+- Eve gesteht, dass Ruprecht und Lebrecht den irdnen Krug nicht zerschlagen haben
+- Eve weigert sich im Gericht zu erzählen wer den Krug tatsächlich zerschlug
+- Marthe will durch Frau Brigittes Aussage beweisen können, dass Ruprecht den Krug zerbrochen habe (S. 53)
+- Veit verdächtigt auch seinen Sohn, den er Sachen packen sah
