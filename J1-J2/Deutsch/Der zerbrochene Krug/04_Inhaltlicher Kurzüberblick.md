@@ -175,3 +175,4 @@ Personen:
 - Eve weigert sich im Gericht zu erzählen wer den Krug tatsächlich zerschlug
 - Marthe will durch Frau Brigittes Aussage beweisen können, dass Ruprecht den Krug zerbrochen habe (S. 53)
 - Veit verdächtigt auch seinen Sohn, den er Sachen packen sah
+	- Ruprecht beteuert weiter sein Unschuld
