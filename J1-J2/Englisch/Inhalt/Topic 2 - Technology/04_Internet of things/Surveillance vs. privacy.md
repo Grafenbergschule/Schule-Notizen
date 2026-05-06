@@ -5,8 +5,6 @@
 
 ## Con (surveillance): 
 
-
-
 p.67, no. 10a
 
 Discuss the pros and cons of surveillance in public spaces: 
@@ -21,7 +19,19 @@ Discuss the pros and cons of surveillance in public spaces:
 
 ### Cons: 
 - They are easily abused
-- Their effectiveness is doupted
+- Their effectiveness is doubted
 - Public camera surveillance is expensive 
 - Can't stop theft
 - privacy, transparent person
+
+
+Arguments: 
+Pro: 
+- Reduce crime rates
+
+Con: 
+- effectiveness is doubted
+- privacy, can easily be abused
+
+
+There is a country on earth where you don't need you passport anymore. China has has pushed the surveillance of public spaces like no other country. Wherever you go, whatever you do in public, the Chinese government is watching you. Even though it seems obvious that this kind of control is in the wrong hands, voices in Germany get louder, which  
