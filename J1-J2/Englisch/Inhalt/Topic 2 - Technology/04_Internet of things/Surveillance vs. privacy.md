@@ -38,4 +38,6 @@ There is a country on earth where you don't need you passport anymore. China has
 
 The obvious reason for introducing surveillance of public places, is the improving of public safety. Cameras with algorithmic face recognition could massively advance effective prosecution. Criminals would have a much harder time trying to disappear in the public. Furthermore, crimes even could be prevented by identifying threats in real time through AI or manual observation. In summary, the surveillance of public places could greatly improve security by making it harder for criminals to hide their actions. 
 
-Even though the potential of implementing camera systems is undoubted, the actual effectiveness of such systems isn't guaranteed. If theses systems aren't installed in a large scale, criminals could easily identify monitored areas and avoid these for criminal activity. In general, criminal activity could move away from public places to more private areas. This isn't solving the issue of crime, it is just pushing it out of our perception. 
+Even though the potential of implementing camera systems is undoubted, the actual effectiveness of such systems isn't guaranteed. If theses systems aren't installed in a large scale, criminals could easily identify monitored areas and avoid these for criminal activity. In general, criminal activity could move away from public places to more private areas. This isn't solving the issue of crime, it is just pushing it out of our perception. Is it worth to invest in such an expensive system, which isn't effective?
+
+
