@@ -176,3 +176,82 @@ Personen:
 - Marthe will durch Frau Brigittes Aussage beweisen können, dass Ruprecht den Krug zerbrochen habe (S. 53)
 - Veit verdächtigt auch seinen Sohn, den er Sachen packen sah
 	- Ruprecht beteuert weiter sein Unschuld
+	  
+
+
+
+## 10. Auftritt
+Personen: 
+- Adam
+- Walter 
+- Ruprecht 
+- Fr. Marthe Mägde
+- Veit
+- Eve
+
+
+## Handlung:
+
+---
+- Adam & Walter nehmen einen Imbiss mit Wein zu sich 
+- Walter fragt Adam über die Wunden und den Verbleib der Perücke aus
+- Ruprecht wird von Walter über den Kampf mit dem Täter befragt
+- Walter hat einen Verdacht. 
+- Fr. Marthe berichtet, Adam sei selten zu Gast
+
+
+## 11. Auftritt
+Personen: 
+- Die Vorigen 
+- Licht 
+- Frau Brigitte
+
+
+## Handlung:
+
+---
+- Fr. Brigitte hat die Perücke dabei, die sie bei Fr. Marthe im Spalier gefunden habe. Adam erkennt diese als seine. 
+- Fr. Brigitte beschreibt einen Mann mit Glatze & Pferdefuß. (Fußspuren zu Adams Haus)
+- Adam fühlt sich langsam enttarnt, er beschuldigt Ruprecht erneut & verurteil ihn zu einer Gefängnisstrafe. 
+- Eve gibt nun die Wahrheit Preis: Adam sit der Schuldige. 
+- Adam flieht 
+
+
+
+## 12. Auftritt
+Personen: 
+- Walter
+- Licht 
+- Frau Marthe
+- Eve
+- Veit
+- Ruprecht
+- Frau Brigitte
+- (Die Mägde)
+
+
+## Handlung:
+
+---
+Hintergrundgeschichte: 
+- Eve soll von Adam ein Attest für Ruprecht erhalte, dass ihn davor bewahren soll in Ostindien eingesetzt zu werden. 
+- Dafür soll sie mit ihm schlafen. 
+- Bevor es dazu kommt, tritt Ruprecht ein. 
+- Beim Fluchtversuch wird Adam verletzt und der Krug geht zu Bruch. 
+- Der Einzugsbefehl ist gefälscht. 
+- Versöhnung von Ruprecht & Eve, Hochzeit an Pfingsten. 
+- Adam wird suspendiert, Licht soll sein Amt übernehmen. 
+
+
+## 12. Auftritt
+Personen: 
+- Die Vorherigen 
+- ohne Licht
+
+
+## Handlung:
+
+---
+- Fr. Marthe zieht in Erwägung auf ihren Krug Recht in Utrecht sprechen zu lassen. 
+- Alternativ schlägt Walter vor, sie könne sich auf dem Marthe einen neuen kaufen (--> Komik)
+
