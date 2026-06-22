@@ -1,4 +1,3 @@
-
 Grundziel: Revision des Friedensvertrages von Versailles
 
 1922 Vertrag von Rapallo: 
@@ -18,3 +17,4 @@ Grundziel: Revision des Friedensvertrages von Versailles
 1926 
 - Berliner Vertrag zwischen Deutschland un der Sowjetunion: im Kriegsfalle gegenseite Neutralität
 - Aufnahme Deutschlands in den Völkerbund
+
