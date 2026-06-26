@@ -22,7 +22,7 @@ führt zu:
 **1930:**
 - Zerbrechen der Regierungskoalition ("Große Koalition" aus 5 Parteien)
 - Ernennung Brünings zum Reichskanzler: 
-	- dieser stützt sich nicht mehr auf das Parlament, sondern auf den Reichspräsidenten (--> **Präsidalkabinett**)
+	- dieser stützt sich nicht mehr auf das Parlament, sondern auf den Reichspräsidenten (--> **Präsidialkabinett**)
 	- regiert auf Grundlage von Notverordnungen
 - Reichstagswahlen (Sept.): NSDAP erreicht 18,3% der Stimmen
 
