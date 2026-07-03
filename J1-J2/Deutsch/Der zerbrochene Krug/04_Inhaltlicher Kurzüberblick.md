@@ -29,7 +29,7 @@ Handlung:
 		- andere Perücke habe er laut Magd am Abend nicht mit nach Hause gebracht
 			- Adam bestreitet das
 			- Katze hätte in seine Perücke gejungt
-		- er will Perücke von "Gevatter Küster" (V. 241) borgen (Kirchendiener )
+		- er will Perücke von "Gevatter Küster" (V. 241) borgen (Kirchendiener)
 - Adam will sich krankmelden, Licht 
 
 
