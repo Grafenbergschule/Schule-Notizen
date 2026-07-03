@@ -94,7 +94,7 @@ Personen:
 
 Handlung:
 - Marthe Rull beschuldigt Ruprecht, er habe er hätte den Krug zerbrochen 
-- Veit Tümpel bietet Schadensersatz an, fall Ruprecht tatsächlich schuldig ist
+- Veit Tümpel bietet Schadensersatz an, falls Ruprecht tatsächlich schuldig ist
 - Ruprecht Tümpel schimpft über Eve, mit der er nicht mehr verlobt ist, da sie mit einem fremden Mann im Zimmer war
 - Eve hat Angst, dass sie Ruprecht nicht mehr wieder sehen wird, da er in den Krieg ziehen wird
 - Marthe Rull sieht direkte Beziehung zwischen zerbrochenem Krug und der verlorenen Ehre Eves
@@ -185,7 +185,8 @@ Personen:
 - Adam
 - Walter 
 - Ruprecht 
-- Fr. Marthe Mägde
+- Fr. Marthe 
+- Mägde
 - Veit
 - Eve
 
@@ -253,5 +254,5 @@ Personen:
 
 ---
 - Fr. Marthe zieht in Erwägung auf ihren Krug Recht in Utrecht sprechen zu lassen. 
-- Alternativ schlägt Walter vor, sie könne sich auf dem Marthe einen neuen kaufen (--> Komik)
+- Alternativ schlägt Walter vor, sie könne sich auf dem Markt einen neuen kaufen (--> Komik)
 
