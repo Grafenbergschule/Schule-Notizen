@@ -1,2 +1,3 @@
 
-![[AB Figurencharakterisierung und -konstellation.pdf]]
+![[AB Figurencharakterisierung und -konstellation (V2).pdf]]
+
