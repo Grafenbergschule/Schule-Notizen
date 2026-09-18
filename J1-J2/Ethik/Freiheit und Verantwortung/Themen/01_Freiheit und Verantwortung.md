@@ -23,3 +23,13 @@ A. 4
 	- ich bin Müde und bin deswegen in meiner Leistungsfähigkeit eingeschränkt 
 	- aber ich kann mich entscheiden trotzdem im Unterricht mitzumachen, da ich eine gute mündliche Note will 
 	- Meine Motivation ist bedingt durch meine Interesse am Fach Deutsch. Dieses ist sowohl durch biologische Faktoren (meine angeborenen Fähigkeiten des Textverständnis, usw.) und 
+
+
+
+## Definition Handlungs- und Willensfreiheit
+
+**Willensfreiheit,** meint die Fähigkeit seine ziele und das eigene Wollen bewusst zu wählen. = Positive Freiheit (Freiheit zu Etwas) **Abwesenheit von inneren Zwängen** (Bsp. Tom hilft dem Nachbarn, Wunsch zweiter Stufe)
+(Innerlich frei)
+
+**Handlungsfreiheit** meint die **Abwesenheit von äußeren Zwängen** = Wahlfreiheit/negative Freiheit (Freiheit zu Etwas, ergibt sich erst aus der Freiheit von Etwas) (Bsp. Wunsch 1 und 2. Stufe)
+(Äußerlich frei)
