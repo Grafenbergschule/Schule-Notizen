@@ -12,3 +12,20 @@
 | **--> verborgenen/verschwiegene Ereignisse**                        |                                                                                 |
 
 ![[Sprachanalyse.pdf]]
+
+## Ursachen und Folgen der Sprachkrise
+
+Brief an Kleists Halbschwester: 
+Unzulänglichkeit der Sprache, die Innenwelt eines Menschen (Gedanken, Gefühle) vollständig zu wiederzugeben
+--> Furcht vor Missverständnissen 
+
+### Konsequenzen Kleists
+- Symbolik
+- Sprachklang des Ausdrucksmittel
+- Gedankenstriche
+- Tendenz zum sprachlichen Verstummen
+--> Impuls zum Ergänzen der Leerstellen
+
+### Sprachskepsis um 1800
+Folgen politischer, gesellschaftlicher, wirtschaftlicher Umbrüche
+--> Ohnmachtsgefühl
