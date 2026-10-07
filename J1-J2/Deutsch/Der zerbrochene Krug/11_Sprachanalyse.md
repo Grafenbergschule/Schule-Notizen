@@ -29,3 +29,6 @@ Unzulänglichkeit der Sprache, die Innenwelt eines Menschen (Gedanken, Gefühle)
 ### Sprachskepsis um 1800
 Folgen politischer, gesellschaftlicher, wirtschaftlicher Umbrüche
 --> Ohnmachtsgefühl
+
+
+![[Sprache_Der_zerbrochne_Krug_Handout.pdf]]
