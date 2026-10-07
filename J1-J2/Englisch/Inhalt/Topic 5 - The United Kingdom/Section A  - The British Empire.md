@@ -60,3 +60,18 @@ streets
 - displacement for thousands of africans
 
 
+## Text
+
+no. 5 
+--> Statement C 
+
+no. 6 
+Outline the suffering and effects of slavery during colonial times, after abolition and in the present day. 
+
+during colonial times: 
+
+after abolition: 
+
+present day: 
+
+
