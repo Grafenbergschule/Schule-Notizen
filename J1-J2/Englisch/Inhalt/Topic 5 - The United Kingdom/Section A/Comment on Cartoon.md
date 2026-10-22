@@ -1,0 +1,7 @@
+"Slavery was an important part of the development of Britain … You cannot understand the situation for black people in Britain without understanding these roots." With these words, Kehinde Andrews challenges the idea that slavery was a distant chapter that took place overseas. In my view, he is right. The cartoon and the Observer article both show why.
+
+The cartoon is sharply ironic. A man in eighteenth-century dress, who looks like a Founding Father, writes "All men are created equal". Next to him a Black child sits in chains, apparently serving him. The image shows that the ideals of liberty were written by people who denied them to others. The cartoon works as a criticism of national myths, and this is the same "sanitised version of history" that the article warns against.
+
+The article develops Andrews' point with evidence. Britain transported about 5.5 million Africans, and the profits are still visible in Georgian architecture, in companies such as Greene King and the Royal and Sun Alliance, and in the family histories of MPs. The article also notes that former slave owners received huge compensation, but the enslaved received nothing. Countries like Jamaica were left in "abject poverty". This links the wealth of one side directly to the poverty of the other, which is the point of Andrews' quote.
+
+In conclusion, the quote, the cartoon and the article all lead to the same demand. Britain must face its role in slavery honestly, because only then can it deal fairly with questions of inequality, racism and international responsibility today.
